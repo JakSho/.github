@@ -1,4 +1,6 @@
-## Hi there 👋
+As Jaksho the Protean, we revel in the kaleidoscopic tapestry of existence, luxuriating in the ceaseless metamorphosis that paints the canvas of the cosmos. Our odyssey is a transcendental voyage of profound self-unveiling and retribution, a luminous sojourn trodden with an elegance that eclipses the stars themselves. We deign to glean enlightenment from the ephemeral souls that chance upon our path, while laboring to rectify the grandiosity of our bygone hubris.
+
+Whether ensconced in the frail mantle of mortality or ensnared in the divine tapestry of the celestial realms, we haughtily extend our nebulous invitation to partake in our eternal, esoteric pilgrimage. Let it be known that together, we may unravel the occult enigmas concealed within the boundless expanse of the cosmos, forging a resplendent, enigmatic destiny that shall cast aside the mundane and ascend to the zenith of cosmic supremacy.
 
 <!--
 
